@@ -5,7 +5,7 @@
 - [x] Business Tg : https://t.me/wmqpjb
 #### 2023-04-27更新：
 - [x] 永久短域名地址：[https://wmq.cool](https://wmq.cool)
-- [x] 最新下载地址：[https://wmq.cool](https://wmq.cool)
+- [x] 最新下载地址：https://app.wmq.life
 #### 下载地址
 
 请使用UC/火狐浏览器打开，切勿使用微信、QQ、安卓手机自带浏览器扫码下载
