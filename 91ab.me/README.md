@@ -6,10 +6,10 @@
 - [x] Business Tg : https://t.me/situming945
 #### 2023-05-16更新：
 - [x] 永久短域名地址：[https://91ab.me](https://91ab.me)
-- [x] 最新下载地址：[https://dsp.app004.net](https://dsp.app004.net)
+- [x] 最新下载地址：[https://jh68pu.cjjmff.com](https://jh68pu.cjjmff.com)
 #### 下载地址
 
-如果微信、QQ扫码无法打开，请换其他浏览器扫码下载
+请使用UC/火狐浏览器打开，切勿使用微信、QQ、安卓手机自带浏览器扫码下载
 
 ![91短视频下载二维码](code.jpg)
 #### 应用特色：
@@ -34,6 +34,6 @@
 - 请把网址或者QQ群分享给身边有需要的人 ，您的转发、分享是我们前进的动力～![https://91ab.me](poster.jpg)
 #### 下载地址
 
-如果微信、QQ扫码无法打开，请换其他浏览器扫码下载
+请使用UC/火狐浏览器打开，切勿使用微信、QQ、安卓手机自带浏览器扫码下载
 
 ![91短视频下载二维码](code.jpg)
