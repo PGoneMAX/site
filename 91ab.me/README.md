@@ -6,7 +6,7 @@
 - [x] Business Tg : https://t.me/situming945
 #### 2023-05-16更新：
 - [x] 永久短域名地址：[https://91ab.me](https://91ab.me)
-- [x] 最新下载地址：[https://jh68pu.cjjmff.com](https://jh68pu.cjjmff.com)
+- [x] 最新下载地址：https://c0.cjjmff.com
 #### 下载地址
 
 请使用UC/火狐浏览器打开，切勿使用微信、QQ、安卓手机自带浏览器扫码下载
