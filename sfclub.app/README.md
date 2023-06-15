@@ -4,14 +4,14 @@
 - [x] Telegram Group0:https://t.me/sfclub1
 - [x] Telegram Group1:https://t.me/sifangbar
 - [x] Business Tg : https://t.me/situming945
-#### 2023-05-16更新：
+#### 2023-06-15更新：
 - [x] 永久短域名地址：[https://app.sfclub.app](https://app.sfclub.app)
 - [x] 最新下载地址：[https://app.sfclub.app](https://app.sfclub.app)
 #### 下载地址
 
 如果微信、QQ扫码无法打开，请换其他浏览器扫码下载
 
-![私房俱乐部下载二维码](code.jpg)
+![私房俱乐部下载二维码](code.png)
 #### 应用特色：
 私房俱乐部——最早的成人私房分享论坛
 - 
@@ -41,4 +41,4 @@
 
 如果微信、QQ扫码无法打开，请换其他浏览器扫码下载
 
-![私房俱乐部下载二维码](code.jpg)
+![私房俱乐部下载二维码](code.png)
