@@ -40,5 +40,6 @@
 #### 下载地址
 
 如果微信、QQ扫码无法打开，请换其他浏览器扫码下载
+![下载二维码](https://github.com/situming945/site/assets/131779453/6da57b9c-4872-48c9-9ec6-d8f1c2bb1565)
 
-![私房俱乐部下载二维码](code.jpg)
+
