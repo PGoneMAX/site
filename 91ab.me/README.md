@@ -2,7 +2,7 @@
 
 #### 回家地址：
 - [x] Telegram Group0:https://t.me/porn001o
-- [x] Telegram Group1:https://t.me/porn001o
+- [x] Telegram Group1:https://t.me/mianfei91AV
 - [x] Business Tg : https://t.me/situming945
 #### 2023-06-15更新：
 - [x] 永久短域名地址：[https://91ab.me](https://91ab.me)
