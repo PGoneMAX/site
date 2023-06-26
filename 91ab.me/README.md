@@ -2,11 +2,11 @@
 
 #### 回家地址：
 - [x] Telegram Group0:https://t.me/porn001o
-- [x] Telegram Group1:https://t.me/mianfei91AV
+- [x] Telegram Group1:https://t.me/porn001o
 - [x] Business Tg : https://t.me/situming945
 #### 2023-06-15更新：
 - [x] 永久短域名地址：[https://91ab.me](https://91ab.me)
-- [x] 最新下载地址：[https://dsp.app004.net](https://dsp.app004.net)
+- [x] 最新下载地址：[https://498.dceqkd.com/]
 #### 下载地址
 
 如果微信、QQ扫码无法打开，请换其他浏览器扫码下载
