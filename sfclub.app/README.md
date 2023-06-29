@@ -4,7 +4,7 @@
 - [x] Telegram Group0:https://t.me/sfclub1
 - [x] Telegram Group1:https://t.me/sifangbar
 - [x] Business Tg : https://t.me/situming945
-#### 2023-06-15更新：
+#### 2023-06-29更新：
 - [x] 永久短域名地址：[https://app.sfclub.app](https://app.sfclub.app)
 - [x] 最新下载地址：[https://app.sfclub.app](https://app.sfclub.app)
 #### 下载地址
