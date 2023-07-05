@@ -3,7 +3,7 @@
 #### 回家地址：
 - [x] Telegram Group:https://t.me/wmqpjb
 - [x] Business Tg : https://t.me/wmqpjb
-#### 2023-06-29更新：
+#### 2023-07-05更新：
 - [x] 永久短域名地址：[https://wmq.cool](https://wmq.cool)
 - [x] 最新下载地址：[https://wmq.cool](https://wmq.cool)
 #### 下载地址

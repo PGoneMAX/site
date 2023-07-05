@@ -1,6 +1,8 @@
 ### 全网最新最全的s网目录浏览
 
-####于 2023-06-29更新：
+####于 2023-07-05更新：
+- [x] 私房KTV # https://sifangktv.fun
+
 - [x] 微密圈破解版 # https://wmq.cool
 
 - [x] 菠萝视频直播 # http://poluo.tips
@@ -11,10 +13,14 @@
 
 - [x] 91av # https://91a.tv
 
-- [x] 快手成人 # kuais.club
+- [x] 快手成人 # https://kuais.club
 
 - [x] 她趣开放社区 # https://taqu.life
 
+
+如果微信、QQ扫码无法打开，请换其他浏览器扫码下载
+
+![私房KTV下载二维码](sfclub.app/code.png)
 
 如果微信、QQ扫码无法打开，请换其他浏览器扫码下载
 
