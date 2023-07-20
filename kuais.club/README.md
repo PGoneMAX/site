@@ -3,7 +3,7 @@
 #### 回家地址：
 - [x] Telegram Group:https://t.me/kslive2
 - [x] Business Tg : https://t.me/shangwu00A
-#### 2023-07-05更新：
+#### 2023-07-20更新：
 - [x] 永久短域名地址：[https://kuais.club](https://kuais.club)
 - [x] 最新下载地址：[https://ksa.app004.net](https://ksa.app004.net)
 #### 下载地址
