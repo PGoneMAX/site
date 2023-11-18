@@ -1,9 +1,9 @@
 ## 91短视频
 
 #### 回家地址：
-- [x] Telegram Group0:https://t.me/porn001o
-- [x] Telegram Group1:https://t.me/mianfei91AV
-- [x] Business Tg : https://t.me/situming945
+- [x] 官方Telegram群组：https://t.me/porn2008
+- [x] 官方Telegram频道：https://t.me/porn91abme 
+- [x] 官方商务联系人：https://t.me/situming666
 #### 2023-07-20更新：
 - [x] 永久短域名地址：[https://91ab.me](https://91ab.me)
 - [x] 最新下载地址：[https://dsp.app004.net](https://dsp.app004.net)
