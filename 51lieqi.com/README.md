@@ -1,8 +1,8 @@
 ## 51猎奇
 
 #### 回家地址：
-- [x] Telegram Group:https://t.me/lqguanfang
-- [x] Business Tg : https://t.me/fenglin521
+- [x] 官方Telegram群：https://t.me/llieqi51
+- [x] 官方商务 : https://t.me/xxing958
 #### 2023-07-20更新：
 - [x] 永久短域名地址：[https://51lieqi.com](https://51lieqi.com)
 - [x] 最新下载地址：[https://51lieqi.com](https://51lieqi.com)
