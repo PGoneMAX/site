@@ -1,8 +1,8 @@
 ## 微密圈破解版
 
 #### 回家地址：
-- [x] Telegram Group:https://t.me/wmqpjb
-- [x] Business Tg : https://t.me/wmqpjb
+- [x] 官方Telegram群组：https://t.me/wmqcool
+- [x] 官方商务联系人：https://t.me/fle958
 #### 2023-07-20更新：
 - [x] 永久短域名地址：[https://wmq.cool](https://wmq.cool)
 - [x] 最新下载地址：[https://wmq.cool](https://wmq.cool)
