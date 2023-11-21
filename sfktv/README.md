@@ -5,7 +5,7 @@
 - [x] 官方商务联系人：https://t.me/fle958
 #### 2023-07-20更新：
 - [x] 永久短域名地址：[https://sifangktv.fun](https://sifangktv.fun)
-- [x] 最新下载地址：[https://sifangktv.fun](https://sifangktv.fun)
+- [x] 最新下载地址：https://85e.nplywa.com/
 #### 下载地址
 
 如果微信、QQ扫码无法打开，请换其他浏览器扫码下载
