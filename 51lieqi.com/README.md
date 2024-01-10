@@ -3,7 +3,7 @@
 #### 回家地址：
 - [x] 官方Telegram群：https://t.me/llieqi51
 - [x] 官方商务 : https://t.me/xxing958
-#### 2023-07-20更新：
+#### 2024-01-10更新：
 - [x] 永久短域名地址：[https://51lieqi.com](https://51lieqi.com)
 - [x] 最新下载地址：[https://8c.oflgmu.com/](https://93.oflgmu.com/)
 #### 下载地址
