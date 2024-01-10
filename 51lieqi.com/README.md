@@ -5,7 +5,7 @@
 - [x] 官方商务 : https://t.me/xxing958
 #### 2024-01-10更新：
 - [x] 永久短域名地址：[https://51lieqi.com](https://51lieqi.com)
-- [x] 最新下载地址：[https://8c.oflgmu.com/](https://93.oflgmu.com/)
+- [x] 最新下载地址：(https://93.oflgmu.com/)
 #### 下载地址
 
 如果微信、QQ扫码无法打开，请换其他浏览器扫码下载
