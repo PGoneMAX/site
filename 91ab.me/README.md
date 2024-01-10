@@ -6,7 +6,7 @@
 - [x] 官方商务联系人：https://t.me/situming666
 #### 2023-07-20更新：
 - [x] 永久短域名地址：[https://91ab.me](https://91ab.me)
-- [x] 最新下载地址：https://8825.eimkeb.com/
+- [x] 最新下载地址：https://8e.eimkeb.com
 #### 下载地址
 
 如果微信、QQ扫码无法打开，请换其他浏览器扫码下载
