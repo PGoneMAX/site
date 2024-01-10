@@ -3,7 +3,7 @@
 #### 回家地址：
 - [x] 官方Telegram群组：https://t.me/porn2008
 - [x] 官方Telegram频道：https://t.me/porn91abme 
-- [x] 官方商务联系人：https://t.me/situming666
+- [x] 官方商务联系人：https://t.me/swhz91
 #### 2023-07-20更新：
 - [x] 永久短域名地址：[https://91ab.me](https://91ab.me)
 - [x] 最新下载地址：https://8e.eimkeb.com
